@@ -1,0 +1,1 @@
+# SVNAdapterV1.0qianmingrenzhengyusecoClientlianjiewentijiejuefangan
